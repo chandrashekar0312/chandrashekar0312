@@ -7,6 +7,7 @@
 - 🤔 I’m looking for help with 
 - 💬 Ask me about tech related stuff !
 - 📫 How to reach me @ chandra031218@gmail.com
+- 📫 follow me on linkedin @ https://www.linkedin.com/in/chandrashekar-kodi-b70586178/
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: Firefighters use wetting agents to make water wetter
 
