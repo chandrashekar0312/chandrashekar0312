@@ -1,5 +1,9 @@
 ### Hi there 👋 my self Chandrashekar Kodi !
 
+Innovation make changes. It will change the vision your methodology and prospect to the problem and eventually change your approach to solve-it !
+
+Think the impossible to make it possible !
+
 
 - 🔭 I’m currently working as Sr Software Engineer on DevOps-AWS at IQVIA
 - 🌱 I’m currently learning k8's
